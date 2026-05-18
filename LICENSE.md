@@ -1,10 +1,10 @@
-Premium Mullvad Utilidad | soporte IKEv2 + protección contra fugas de DNS es el mejor Mullvad utilidad con soporte IKEv2 y protección contra fugas de DNS. Seguro y optimizado.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PinTradesmanJinx.github.io/mullvad-bl88/ ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
