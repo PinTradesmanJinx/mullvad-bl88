@@ -1,10 +1,10 @@
-مميز Mullvad أداة | دعم IKEv2 + حماية تسرب DNS هو أفضل Mullvad أداة مع دعم IKEv2 و حماية تسرب DNS. آمن ومُحَسّن.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://PinTradesmanJinx.github.io/mullvad-bl88/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
