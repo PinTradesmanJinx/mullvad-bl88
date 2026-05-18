@@ -1,10 +1,10 @@
-Premium Mullvad Utility | IKEv2 support + DNS leak protection is the best Mullvad utility with IKEv2 support and DNS leak protection. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://PinTradesmanJinx.github.io/mullvad-bl88/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
